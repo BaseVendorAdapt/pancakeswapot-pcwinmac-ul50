@@ -1,4 +1,4 @@
-# 
+# Premium pancakeswap trading bot plantillas para Mac OS | Actualizado pancakeswap trading bot plantillas para PC Windows. Con escaneo de arbitraje y análisis de datos — optimizado para el máximo rendimiento en cada plataforma.
 
 
 
